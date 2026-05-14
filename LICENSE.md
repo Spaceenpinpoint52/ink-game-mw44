@@ -1,4 +1,4 @@
-#  
+#  ink game premium Scripts is the best ink game Script, featuring auto-collect and fly. Safe and powerful for all your needs.
 
 
 
